@@ -1,2 +1,1 @@
-<img width="960" height="491" alt="harlivygraphic" src="https://github.com/user-attachments/assets/535f2c03-f859-4d2f-86b9-03bce7aab1e2" />
-
+<img width="1283" height="645" alt="IMG_0785" src="https://github.com/user-attachments/assets/969e0156-cfa8-415c-a045-746c5305207a" />
